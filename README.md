@@ -1,0 +1,2 @@
+# PRONOSTICS-
+prono
